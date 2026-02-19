@@ -144,5 +144,4 @@ These Terms are governed by the laws of the State of Delaware, without regard to
 20) Contact
 
 Support store.zonegaming.net
- (replace if different)
 Website: store.zonegaming.net
